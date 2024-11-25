@@ -7,3 +7,4 @@ Key Features:
 2. Student-Crafted Design: Every pixel and line of code in "Aaksham Software" is a result of our team's dedication and passion. The user interface is not only functional but also aesthetically pleasing, reflecting the modern standards of software design.
 3. Budget-Friendly Solution: Being students ourselves, we understand the importance of cost-effectiveness. "Aaksham Software" is a budget-friendly option without compromising on functionality, making it accessible to a wide range of hotel owners and managers.
 4. Continuous Learning and Improvement: As students, we embrace the spirit of continuous learning. "Aaksham Software" is not a static project; it's a dynamic endeavor that will evolve with your feedback and the changing landscape of the hospitality industry.
+Video : https://drive.google.com/drive/folders/1vHKI4q6oaj7w6vb-gflLO891UmVZepCA
