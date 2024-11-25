@@ -8,4 +8,4 @@ Key Features:
 3. Budget-Friendly Solution: Being students ourselves, we understand the importance of cost-effectiveness. "Aaksham Software" is a budget-friendly option without compromising on functionality, making it accessible to a wide range of hotel owners and managers.
 4. Continuous Learning and Improvement: As students, we embrace the spirit of continuous learning. "Aaksham Software" is not a static project; it's a dynamic endeavor that will evolve with your feedback and the changing landscape of the hospitality industry.
    
-Video : https://drive.google.com/drive/folders/1vHKI4q6oaj7w6vb-gflLO891UmVZepCA
+Video : https://drive.google.com/file/d/1UvdlVv8uCJe69PVJc31nR4lcWLfhzc6U/view
